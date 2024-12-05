@@ -1,1 +1,2 @@
 # Reed Funny Story
+A not so long time ago, in a galaxy not so far away three individuals begin learning how to code in repositories. They begin to fight through adversity to make it to the end of their journies. With their helpful teacher they begin to make great progress. 
