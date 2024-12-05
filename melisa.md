@@ -4,4 +4,4 @@ two dead boys went out to fight
 back to back they shot eachother
 drew their swords and shot eachother
 the deaf police man heard the noise
-came to save the two dead boys
+came to stop the two dead boys
